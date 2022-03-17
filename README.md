@@ -1,0 +1,2 @@
+- 👋 Olá, Meu nome e PedroEmmerick
+- 👀 Atualmente estudando Engenharia De Software
